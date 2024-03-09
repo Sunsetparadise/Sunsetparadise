@@ -1,2 +1,1 @@
-# Strawberries
-trying to figure out how this works...
+TO BE COMPLETELY HONEST I HAVE NO IDEA HOW TO WORK THIS
