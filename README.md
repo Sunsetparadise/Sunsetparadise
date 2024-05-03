@@ -1,5 +1,4 @@
 TO BE COMPLETELY HONEST I HAVE NO IDEA HOW TO WORK THIS
-anyway comment on my gb /j /nf
 
 Some of my current interests ; Obey me , The arcana / Last legacy , Backrooms , Fnaf + The good place
 
