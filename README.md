@@ -1,4 +1,4 @@
-TO BE COMPLETELY HONEST I HAVE NO IDEA HOW TO WORK THIS
+Pfp creds 2 bland_boy on insta !!
 
 Some of my current interests ; Obey me , The arcana / Last legacy , Backrooms , Fnaf + The good place
 
