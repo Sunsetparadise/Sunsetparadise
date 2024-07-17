@@ -1,6 +1,6 @@
 Pfp creds 2 bland_boy on insta !!
 
-Some of my current interests ; Obey me , The arcana / Last legacy , Backrooms , The walking dead , friends
+Some of my current interests ; Obey me , The arcana , SCP , The walking dead , friends
 
 Just a heads-up : I rarely check github right now. I'm still active on ponytown!
 
